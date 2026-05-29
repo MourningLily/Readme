@@ -1,5 +1,13 @@
 <div align="center">
-
+  
+♡
+chronically in ponytown
+probably decorating, wandering, or staring into space
+friendly unless i’m anxious/tired
+c+h okay • slow replies sometimes
+have a lovely day ♡
+♡
+     
 <img src="https://litter.catbox.moe/hgudyqxn6sznz1hy.png" alt="gay">
 
   
